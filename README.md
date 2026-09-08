@@ -4,3 +4,6 @@ apakah berhasil?
 dan apakah aman?
 test
 gua harap ini berhasil
+bissmillah berhasil
+dan aman
+coba
